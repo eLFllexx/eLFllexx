@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @eLFllexx
+- 📫 contact: eLFlexx@blademc.net
